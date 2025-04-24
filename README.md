@@ -6,7 +6,7 @@
 
 - 🔭 I’m currently working on **finishing my Bachelor Degree in Computer Science.**
 
-- 📫 How to reach me **acappstudies@gmail.com**
+- 📫 How to reach me **andiiiiashyraf@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
